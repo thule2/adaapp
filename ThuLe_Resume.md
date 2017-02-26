@@ -1,7 +1,7 @@
 # Thu Le
 
 ### QUALIFICATIONS  
-Detailed and Meticulous.
+_**Detailed and Meticulous.**_
 
 ### WORK EXPERIENCE  
 _**University of Washington Neurology Department, Research Scientist I – Lab manager**, June 2014 – January 2016_  
@@ -26,10 +26,10 @@ _**Bachelor of Science, Biology, University of Washington** March 2014_
 _**Bachelor of Arts, Korean, University of Washington** March 2014_
 
 ### LANGUAGES  
-English - fluent  
-Vietnamese - fluent  
-Korean - proficient  
-Japanese - elementary proficient
+_**English**_ - fluent  
+_**Vietnamese**_ - fluent  
+_**Korean**_ - proficient  
+_**Japanese**_ - elementary proficient
 
 ### REFERENCES  
-Available upon request.
+_**Available upon request.**_
