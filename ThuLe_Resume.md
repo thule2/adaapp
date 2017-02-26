@@ -26,10 +26,10 @@ _**Bachelor of Science, Biology, University of Washington** March 2014_
 _**Bachelor of Arts, Korean, University of Washington** March 2014_
 
 ### LANGUAGES  
-_**English**_ - fluent  
-_**Vietnamese**_ - fluent  
-_**Korean**_ - proficient  
-_**Japanese**_ - elementary proficient
+* _**English**_ - fluent  
+* _**Vietnamese**_ - fluent  
+* _**Korean**_ - proficient  
+* _**Japanese**_ - elementary proficient
 
 ### REFERENCES  
 _**Available upon request.**_
