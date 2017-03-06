@@ -4,7 +4,7 @@
 _**Detailed and Meticulous.**_
 
 ### WORK EXPERIENCE  
-_**University of Washington Neurology Department, Research Scientist I – Lab manager**, June 2014 – January 2016_  
+_**University of Washington Neurology Department, Research Scientist I – Lab manager**, June 2014 – Present_  
 Middle cerebral artery occlusion, common carotid artery occlusion, infarct staining and quantification, neurobehavioral scoring, ex vivo flow cytometry, ELISA, qPCR, mouse colony management, training of undergraduate students. Maintained lab supply and chemical inventory. Performed data analysis.
 
 _**Sentencing Guidelines Commission, Office Assistant**, February 2008 – March 2009_  
@@ -24,6 +24,10 @@ Assisted Volunteer and Mobile Blood Drive coordinator by editing and updating vo
 ### EDUCATION  
 _**Bachelor of Science, Biology, University of Washington** March 2014_  
 _**Bachelor of Arts, Korean, University of Washington** March 2014_
+
+### HOBBIES  
+_**Volleyball, Tennis, Soccer**_  
+_**Language and Cultural Exchange**_
 
 ### LANGUAGES  
 * _**English**_ - fluent  
