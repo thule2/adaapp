@@ -11,6 +11,9 @@ _**Sentencing Guidelines Commission, Office Assistant**, February 2008 – March
 Sorted mail, answered phones, sent faxes, compiled criminal data into database and archived data. Assisted with conducting surveys by collating surveys, packaging and preparing surveys for mail; logged survey results into database.
 
 ### VOLUNTEER EXPERIENCE  
+_**2016 Seattle/King County Clinic, Medical Interpreter**, October 2016_  
+Acted as Vietnamese medical intrepreter for Vietnamse patients.
+
 _**University of Washington Neurology Department, Undergraduate Student Research Assistant**, April 2012_  
 Mice handling, cervical dislocation, mice neonate microglial cell prep, western blotting, optic nerve and retina dissection. Experimental planning and troubleshooting.
 
@@ -26,8 +29,8 @@ _**Bachelor of Science, Biology, University of Washington** March 2014_
 _**Bachelor of Arts, Korean, University of Washington** March 2014_
 
 ### HOBBIES  
-_**Volleyball, Tennis, Soccer**_  
-_**Language and Cultural Exchange**_
+_Volleyball, Tennis, Soccer_  
+_Language and Cultural Exchange_
 
 ### LANGUAGES  
 * _**English**_ - fluent  
