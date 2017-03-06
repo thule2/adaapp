@@ -12,7 +12,7 @@ Sorted mail, answered phones, sent faxes, compiled criminal data into database a
 
 ### VOLUNTEER EXPERIENCE  
 _**2016 Seattle/King County Clinic, Medical Interpreter**, October 2016_  
-Acted as Vietnamese medical interpreter for Vietnamese patients.
+Acted as medical interpreter for Vietnamese patients.
 
 _**University of Washington Neurology Department, Undergraduate Student Research Assistant**, April 2012_  
 Mice handling, cervical dislocation, mice neonate microglial cell prep, western blotting, optic nerve and retina dissection. Experimental planning and troubleshooting.
